@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **GRCP Audit**
 
-- 📫 How to reach me **mack22081@gmail.com**
+- 📫 How to reach me **mayank.agrawal@joshtechnologygroup.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
